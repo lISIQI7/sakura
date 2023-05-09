@@ -1,3 +1,3 @@
-# sakura
+# sakura🎶
 # thanks to akazdayo akaz
-# it's great.
+# it's great.✨
